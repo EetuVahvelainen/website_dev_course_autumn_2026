@@ -1,1 +1,1 @@
-Työpaja tehtävä 6
+Työpaja tehtävä 6.
