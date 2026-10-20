@@ -1,1 +1,1 @@
-Työpaja tehtävä 3
+Työpaja tehtävä 3.
